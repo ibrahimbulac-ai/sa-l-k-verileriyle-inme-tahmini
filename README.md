@@ -1,0 +1,1 @@
+# sa-l-k-verileriyle-inme-tahmini
